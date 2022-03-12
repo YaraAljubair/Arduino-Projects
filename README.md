@@ -13,9 +13,7 @@ https://user-images.githubusercontent.com/83831497/158020505-0cb9e3de-53d0-4f0b-
 
 
 
-https://user-images.githubusercontent.com/83831497/158020590-9f3b7349-6869-4f74-8df4-3e345080a014.MOV
 
 
 
-https://user-images.githubusercontent.com/83831497/158020595-e32cf640-fbd5-4d64-a623-013c9ba290ba.mp4
 
